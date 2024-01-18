@@ -97,11 +97,11 @@ Ingredients:
 - 1 tsp baking soda
 - 1 tsp salt
 - 1 cup unsalted butter, softened
-- 3/4 cup white sugar
-- 3/4 cup brown sugar
+- 2 3/4 cup white sugar
+- 8 3/4 cup brown sugar
 - 2 eggs
 - 2 tsp vanilla extract
-- 2 cups semisweet chocolate chips
+- 10 cups semisweet chocolate chips
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
@@ -113,3 +113,5 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+
