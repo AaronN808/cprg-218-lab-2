@@ -80,6 +80,8 @@ Ingredients:
 - Lettuce
 - Tomato
 - Mayonnaise
+- Pickles
+- Siracha
 
 Instructions:
 1. Preheat grill to medium-high heat.
