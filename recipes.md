@@ -117,3 +117,43 @@ Instructions:
 9. Cool on wire racks.
 
 
+### Eggnog Cookies
+
+Ingredients:
+- 2 cups (283g) all-purpose flour (scoop and level to measure*)
+- 2 tsp baking powder
+- 1/2 tsp salt
+- 1/2 tsp ground nutmeg, plus more for topping
+- 1/2 tsp ground cinnamon
+- 3/4 cup (170g) unsalted butter, at room temperature
+- 1/2 cup (100g) granulated sugar
+- 1/2 cup (100g) packed light-brown sugar
+- 2 large egg yolks
+- 1 tsp vanilla extract
+- 1/2 tsp rum extract
+- 1/2 cup eggnog (not low fat)
+
+Frosting:
+
+- 1/2 cup (113g) butter, at room temperature (I used 1/4 cup salted and 1/4 cup unsalted butter)
+- 3 - 5 Tbsp eggnog
+- 1/2 tsp rum extract
+- 3 cups (360g) powdered sugar
+
+Instructions:
+
+1. Preheat oven to 350°F (180°C). In a mixing bowl, whisk together flour, baking powder, salt, nutmeg and cinnamon for 30 seconds, set aside. 
+
+2. In the bowl of an electric stand mixer fitted with the paddle attachment, whip together butter, granulated sugar and brown sugar until pale and fluffy. 
+
+3. Mix in egg yolks one at a time, blending just until combined after each addition. Mix in vanilla extract, rum extract and egg nog. With mixer set on low speed, slowly add in dry ingredients and mix just until combined. 
+
+4. Scoop dough out by the heaping tablespoonfuls and drop onto Silpat or parchment paper lined baking sheets, spacing cookies 2-inches apart. 
+
+5. Bake in preheated oven 11 - 13 minutes. Allow to rest on baking sheet several minutes before transferring to a wire rack to cool. Cool completely then frost with Eggnog Frosting and sprinkle tops lightly with nutmeg.
+
+Eggnog Frosting:
+
+1. In the bowl of an electric stand mixer fitted with the paddle attachment, whip butter until very pale and fluffy. Add in rum extract and 3 Tbsp eggnog and mix in powdered sugar. Add additional eggnog to reach desired consistency.
+
+Jaclyn. (2020, December 19). Eggnog Cookies {Melt-in-Your-Mouth} - Cooking classy. Cooking Classy. https://www.cookingclassy.com/melt-mouth-eggnog-cookies/
